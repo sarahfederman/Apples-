@@ -1,3 +1,3 @@
 # Apples-
 
-#### Sarah, Melis, Jon, & Jack EPC 2017
+#### Sarah, Melis, Jon, & Jack. EPC 2017
